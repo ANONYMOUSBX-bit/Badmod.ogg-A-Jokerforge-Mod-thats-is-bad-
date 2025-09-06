@@ -1,4 +1,2 @@
-Hi
-thanks for downloading
-why are you reading this??
-play the mod already
+this mod is very unpolished and unoptimized
+please play with your own caution
